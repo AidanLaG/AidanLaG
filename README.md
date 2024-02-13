@@ -5,7 +5,7 @@
 - 📫 How to reach me through my email: aidanlaguardia@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a great golfer with a handicap of 11. Am intrested in being a Youtuber/Streamer of videogame content I like, while also creating my own original video essay style content. On topics that I think derseve some spotlight.
-
+- P.S. Yes, I know my profile pic is pixlated I did that for effect adn to stand out.
 <!---
 AidanLaG/AidanLaG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
